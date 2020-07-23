@@ -1,1 +1,1 @@
-# usshi-e.sokagithub.jo
+# usshi-e.sokagithub.io
